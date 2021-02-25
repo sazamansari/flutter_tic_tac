@@ -17,5 +17,4 @@
 
 
 ## Contact me 📧
-#### Email : mrbouaggadmoez@gmail.com
-#### Website : https://bouaggadmoez.netlify.com/
+#### Email : samtipu20016@gmail.com
